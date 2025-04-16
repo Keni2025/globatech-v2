@@ -1,1 +1,0 @@
-# globatech-v2
